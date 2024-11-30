@@ -28,7 +28,7 @@ Destiny sure has a funny way of humbling us, doesn’t it? 🤭
 ### Connect with Me
 
 Would love to connect and learn from one another! Feel free to reach out to me
-on [**LinkedIn**](linkedin.com/in/alaa-elgozouli-9a9570202)
+on [**LinkedIn**](https://www.linkedin.com/in/alaa-elgozouli-9a9570202/)
 
 ### Memes that Show my Personality
 
